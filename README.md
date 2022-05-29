@@ -1,1 +1,1 @@
-I have attached screenshots with name IMG1 and IMG 2
+I have attached screenshots of the app 
